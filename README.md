@@ -19,3 +19,5 @@
 ### 备用域名4    [https://dacdh.netlify.app/](https://dacdh.netlify.app/)
 
 ### 备用域名5    [https://nwuzmedoutlook.github.io/](https://nwuzmedoutlook.github.io/)
+
+<a href="https://jq.qq.com/?_wv=1027&k=liPvvBbz" target="_blank" style="color:#1d953f;font-size:40px" >🔥点此加入DAC导航交流群（群号780665645）</a>
