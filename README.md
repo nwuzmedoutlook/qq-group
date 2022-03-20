@@ -13,4 +13,4 @@
 
 ### 备用域名1 https://dacdh.cf/
 ### 备用域名2 https://dacdaohang.cf/
-
+### 各大高校课程资源汇总 <a href="https://studyhard.cf/" target="_blank" >https://studyhard.cf/</a>
