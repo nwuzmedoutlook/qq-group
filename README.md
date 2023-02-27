@@ -16,5 +16,5 @@
 ### 📚各大高校课程资源汇总 <a href="https://studyhard.cf/" target="_blank" >https://studyhard.cf/</a>
 ### 🎓各大高校保研、留学、考研、就业经验分享 <a href="https://nwuzmedoutlook.github.io/career-plan" target="_blank" >https://nwuzmedoutlook.github.io/career-plan/</a>
 
-Made with 💖 by <a href="https://co2co2.cf" target="_blank" rel="noopener">NWUzmed</a>, 
+Made with 💖 by <a href="https://ccus.cf" target="_blank" rel="noopener">NWUzmed</a>, 
 <p align="right">Last updated: 2023.01.10</p>
