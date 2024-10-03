@@ -1,4 +1,4 @@
-# 😎DAC导航交流群&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<a href="https://mark-down.cf/" target="_blank" style="color:#1d953f" >🐱‍👤匿名留言</a>
+# 😎DAC导航交流群&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;<a href="https://co2co2.eu.org/" target="_blank" style="color:#1d953f" >🐱‍👤匿名留言</a>
 # 快点击超链接加入我们吧！无偿助你解决各种问题。
 
 |  **类型**   |                                                                                    **名称**                                                                                     | **群号**  |                                                                                                                                            **加入**                                                                                                                                             |                                                                                           **备注**                                                                                            |
@@ -13,10 +13,10 @@
 
 ## DAC导航备用域名，看到就快收藏吧！
 
-### 备用域名1 https://dacdh.cf/
-### 备用域名2 https://dacdaohang.cf/
+### 备用域名1 https://studyhard.eu.org/
+### 备用域名2 https://nwuzmedoutlook.github.io/
 ### 📚各大高校课程资源汇总 <a href="https://workhard.eu.org/" target="_blank" >https://workhard.eu.org/</a>
 ### 🎓各大高校保研、留学、考研、就业经验分享 <a href="https://career-plan.eu.org/" target="_blank" >https://career-plan.eu.org/</a>
 
-Made with 💖 by <a href="https://ccus.cf" target="_blank" rel="noopener">NWUzmed</a>, 
+Made with 💖 by <a href="https://zmed.eu.org" target="_blank" rel="noopener">NWUzmed</a>, 
 <p align="right">Last updated: 2023.12.17</p>
